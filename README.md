@@ -5,6 +5,8 @@
 ![image](https://github.com/user-attachments/assets/1388b401-3c89-4b06-8a0f-61749fa0b9c9)
 
 ## 2018-2019:
+![image](https://github.com/user-attachments/assets/522f021f-60c3-457e-ac74-f53127395f55)
+
 ![image](https://github.com/user-attachments/assets/4b14e8b7-4e71-40d2-a747-066e0896a50c)
 
 ## 2017-2018:
