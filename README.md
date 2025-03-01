@@ -12,6 +12,8 @@
 ![image](https://github.com/user-attachments/assets/4b14e8b7-4e71-40d2-a747-066e0896a50c)
 
 ## 2017-2018:
+![image](https://github.com/user-attachments/assets/47c7f8a2-4d0b-474d-8f6d-6ebd49bd56ba)
+
 ![image](https://github.com/user-attachments/assets/f995050b-fb06-4d38-99e9-c35993697cae)
 
 ## 2016-2017:
