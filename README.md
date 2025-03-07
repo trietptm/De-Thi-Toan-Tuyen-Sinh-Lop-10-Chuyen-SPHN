@@ -1,6 +1,9 @@
 # De-Thi-Toan-Tuyen-Sinh-Lop-10-Chuyen-SPHN
 Đề Thi Toán Tuyển Sinh Vào Lớp 10 Chuyên Trường THPT Chuyên Đại Học Sư Phạm, Hà Nội
 
+## 2024-2025:
+![image](https://github.com/user-attachments/assets/a0732a43-05aa-41be-a9d1-bdd9c11ca21c)
+
 ## 2023-2024:
 ![image](https://github.com/user-attachments/assets/aab04ddc-a6bb-47f8-ae80-b8f694b0ef92)
 
