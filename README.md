@@ -55,6 +55,9 @@
 
 ![image](https://github.com/user-attachments/assets/37b89b48-00dc-46ef-a86b-d46969c98904)
 
+## 2006-2007:
+![image](https://github.com/user-attachments/assets/3de6e423-7943-45de-873c-8a39091bb269)
+
 
 ## THAM KHẢO THÊM:
 * https://github.com/trietptm/De-Thi-Toan-Chuyen-Tuyen-Sinh-Lop-10-Chuyen-Toan-SPHN
